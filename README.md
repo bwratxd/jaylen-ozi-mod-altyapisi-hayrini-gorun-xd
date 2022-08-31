@@ -1,0 +1,1 @@
+﻿Yani neden paylaştım bilmiyorum ama bazen canım sıkılıyor sadece yaptığınız botları gerçekten güvendiğiniz kişilere verin sonra ihanet ile karşılaşmayın :)) yada zeki olanlara :))
